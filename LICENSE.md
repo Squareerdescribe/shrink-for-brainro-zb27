@@ -1,4 +1,4 @@
-
+shrink for brainrots Script new offers the most advanced shrink for brainrots Script, with silent aim and teleport. Perfect for dominating any match.
 
 
 
